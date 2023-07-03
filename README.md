@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi I'm Luna, I'm not really sure what I'm gonna do with this profile but we'll see in the coming future :)
 
 <!--
 **lowkeyluna/lowkeyluna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
